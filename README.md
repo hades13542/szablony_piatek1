@@ -1,0 +1,1 @@
+# szablony_piatek1
